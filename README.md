@@ -1,4 +1,4 @@
-👀 📫  lengqie@foxmail.com
+📫  lengqie@foxmail.com
 
 <!---
 lengqie/lengqie is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
